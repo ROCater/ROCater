@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ROCater
+- 👋 Hi, I’m @ROCatcher
 - 👀 I’m interested in happiness
 - 🌱 I’m currently learning happinesses
 - 💞️ I’m looking to collaborate on earth
